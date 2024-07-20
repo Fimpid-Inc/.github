@@ -6,4 +6,4 @@ At Fimpid, we're on a mission to redefine the Android OS landscape, crafting an 
 
 Join us as we work on this exciting journey towards excellence.
 
-![Fimpid Logo](https://douzie.site/Frame%20260862849.png)
+![Fimpid Logo](https://douzie.site/fimpidlogonewpetal.png)
